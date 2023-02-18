@@ -54,3 +54,21 @@ The MDN [Accessibility Learning Area](/en-US/docs/Learn/Accessibility) contains 
 
 - [WAI Interest Group](https://www.w3.org/WAI/about/groups/waiig/)
 - [Developer guides](/en-US/docs/Web/Guide)
+📵แจกเว็บเครฟรีไม่แชร์​
+
+#ฝากรีทวิตด้วยนะคะ
+
+เครดิตฟรี 50 
+https://88fed.com/register?rid=1015102&openExternalBrowser=1
+
+เครดิตฟรี 50 
+https://ubet89.com/register?rid=99615&openExternalBrowser=1
+
+เครดิตฟรี 200 กดรับเอง รับได้ครั้งละ 20บ./ 10วัน
+https://thb999.com/register?rid=260167&openExternalBrowser=1
+
+เครดิตฟรี 77 
+https://77.live/register?rid=350049&openExternalBrowser=1
+
+เครดิตฟรี 100 
+https://betg11.com/?mid=E81me9UebwMmzL3KtT5%2F3A%3D%3D
